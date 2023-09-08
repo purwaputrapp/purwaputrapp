@@ -9,7 +9,7 @@ bahkan yang saya ketahui, semua itu semata-mata agar saya tidak lupa.
 
 - Pelajar di <a href="https://smkprestasiprima.sch.id/">SMK PRESTASI PRIMA</a>✍🏾
 - Website <a href="https://rtd.codegeek.my.id"> Codegeek</a> 🏓
-- Social Media <a href="https://www.linkedin.com/in/monicampowell/">Instagram</a> 💼
+- Social Media <https://instagram.com/waputra_?igshid=OGQ5ZDc2ODk2ZA==>Instagram</a> 💼
 
 ## 💼 Technical Skills
 
